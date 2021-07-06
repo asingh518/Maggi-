@@ -1,0 +1,1 @@
+Maggi noodles, Masla packet, Water, Pan.
